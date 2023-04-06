@@ -1,0 +1,1 @@
+# -QRRevision-Tecnica-aspx-patenteRF4016
